@@ -12,4 +12,4 @@
 ### API URL: https://wyydl.zwdblog.online
 
 ## 技术沟通
-ws666@polyu.edu.rs （备注1）
+zouwd200219@gamil.com （备注1）
